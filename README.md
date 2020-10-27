@@ -4,3 +4,4 @@
 1. A
 2. B
 3. C
+![]https://qgt-style.oss-cn-hangzhou.aliyuncs.com/newcoursep4/g1/g1-2-2/tenor.gif
